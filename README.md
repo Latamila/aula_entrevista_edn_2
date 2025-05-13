@@ -26,22 +26,3 @@
 
 ![image](https://github.com/user-attachments/assets/b5be3010-e73a-4468-bb84-c9a8f8914517)
 
-![image](https://github.com/user-attachments/assets/ee47bda1-a798-4f99-9a86-0db784e222b6)
-
-
-![image](https://github.com/user-attachments/assets/91c11a37-552b-48d7-91e4-dbe0bd0f87e2)
-
-![image](https://github.com/user-attachments/assets/258cf5e5-8ecc-4c1e-bc4d-304ef2c6a4a7)
-
-![image](https://github.com/user-attachments/assets/85d30930-9807-4705-af7b-4c6f0f39eecf)
-
-![image](https://github.com/user-attachments/assets/d8dde776-fc57-4641-86b8-15074f7ab164)
-
-![image](https://github.com/user-attachments/assets/8f7a7628-5682-4a65-85b9-d4ae45cfe8e2)
-
-#Essa será tarefa de vocês responderem!
-
-![image](https://github.com/user-attachments/assets/f122ef08-fe6c-4ce0-80ac-ee1061b29227)
-
-![image](https://github.com/user-attachments/assets/8dd8e5fb-ef28-46af-86e2-fdb3efab6c0a)
-
